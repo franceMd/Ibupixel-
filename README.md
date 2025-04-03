@@ -5,7 +5,7 @@ Mr b² smile 😁
 
 
 </p>
- 
+
  <a href="https://whatsapp.com/channel/0029VawO6hgF6sn7k3SuVU3z">
  <img alt="Mr b² smile 😁 " height="300" src="https://files.catbox.moe/rgleol.jpg".
 
@@ -34,9 +34,9 @@ Mr b² smile 😁
 [![Get Session ID Here](https://img.shields.io/static/v1?label=Session%20ID&message=Generate&color=FF4500&style=for-the-badge&logo=firefox&logoColor=white)](https://mr-b2-smile-pair-code.onrender.com) 
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=🅂🄴🅂🅂🄸🄾🄽+🄸🄳+🅂🄸🅃🄴+🄸🅂+🄷🄴🅁🄴1👆)](https://git.io/typing-svg)
- 
+
 [![Get Session ID Here](https://img.shields.io/static/v1?label=Session%20ID&message=Generate&color=FF4500&style=for-the-badge&logo=firefox&logoColor=white)](https://mr-b2-smile-pair-code.onrender.com/pair)
- 
+
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=🅂🄴🅂🅂🄸🄾🄽+🄸🄳+🅂🄸🅃🄴🄴+🄸🅂+🄷🄴🅁🄴2👆)](https://git.io/typing-svg)
  <br>
 
@@ -71,10 +71,10 @@ CONTACT DEVELOPER ON WHATSAPP
 
 <a href="https://wa.me/255628848298" target="_blank">
     <img alt="whatsapp Group" src="https://img.shields.io/badge/Mr b² contact -25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
-   
+
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=CONTACT+ME👆)](https://git.io/typing-svg)
- 
+
 <a href="https://whatsapp.com/channel/0029VawO6hgF6sn7k3SuVU3z" target="_blank">
     <img alt="whatsapp Group" src="https://img.shields.io/badge/ Mr b² CHANNEL -25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
- 
+
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=blue&lines=FOLLOW+CHANEL👆)](https://git.io/typing-svg)
